@@ -1,2 +1,2 @@
-# hikeontreks.github.io
-Hike on
+# HIKE ON TREKS
+Hike on TREKS
